@@ -7,6 +7,6 @@
 </div>
 
 
-![Sponsor Awais](https://i.imgur.com/iv1lHiu.png)
+![Sponsor Awais](https://user-images.githubusercontent.com/15802366/100516434-1accb700-3184-11eb-9352-24208071653f.jpg)
 
 <small><strong>❯❯ Some of my recent contributions ↓</strong></small>
